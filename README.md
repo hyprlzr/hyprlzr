@@ -17,6 +17,8 @@
   ✧ If you see me on ponytown, literally don't be scared to bother me. I may suck at conversations, but I do enjoy talking with people.
   <br>
   ✦ I am also pretty much open to cuddles.
+  <br>
+  ✧ I don't really have a DNI list, aside from the obvious shit that makes me question your morality and/or anything that would land you on jail or watchlist. I block/hide people pretty freely lowkey.
 </p>
 <p align="center">
   <img src="https://files.catbox.moe/4pc51c.png" width="900">
