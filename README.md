@@ -28,7 +28,7 @@
   <div align="center">
   <a href="https://hyprlzr.atabook.org">MY ATABOOK, SIGN IT!!!!!!
     <br>
-  <a href="https://github.com/hyprlzr">fluffle.cc page, basically a fancier version of rentry/carrd, link won't work as it's not finished yet.</a>
+  <a href="https://fluffle.cc/phantombleu">fluffle.cc page, basically a fancier version of rentry/carrd, recommended to view this on a horizontal screen (pc preferred),</a>
 </div>
   
 </p>
